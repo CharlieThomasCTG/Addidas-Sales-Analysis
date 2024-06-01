@@ -6,7 +6,7 @@
 ![Slide5](https://github.com/charliethomasct82/Addidas-Sales-Analysis/assets/93368865/122a0677-4d16-4ae2-8c33-f1321848c50f)
 ![Slide6](https://github.com/charliethomasct82/Addidas-Sales-Analysis/assets/93368865/2d82b47a-8a80-4155-92ab-a31200c4f34d)
 ![Slide7](https://github.com/charliethomasct82/Addidas-Sales-Analysis/assets/93368865/35b722cc-1870-4b26-87d5-96feaaeb64c9)
-![Slide8](https://github.com/charliethomasct82/Addidas-Sales-Analysis/assets/93368865/31e3184f-3848-4dec-9df6-c776d3ea20bd)
+![image](https://github.com/charliethomasct82/Addidas-Sales-Analysis/assets/93368865/79fb0abf-f1eb-410a-91fa-2430d54ae02b)
 ![Slide9](https://github.com/charliethomasct82/Addidas-Sales-Analysis/assets/93368865/cde5a716-d96a-4178-9ddc-55ac3b3e0157)
 ![Slide10](https://github.com/charliethomasct82/Addidas-Sales-Analysis/assets/93368865/c6f3d3a4-9ecd-4112-8d11-72e141124754)
 ![Slide11](https://github.com/charliethomasct82/Addidas-Sales-Analysis/assets/93368865/87325bca-fa13-441d-bcfe-1d97c2adfc23)
